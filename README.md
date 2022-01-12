@@ -1,5 +1,5 @@
 - I walks in forest at night.
-- And I floats in clean transparent beautiful lake at the day-time.
+- Because I floats in clean transparent beautiful lake at the day-time.
 - I love Sól which lightens her rays fantastic deeplandscape. 
 - I live among plants in my house. 
 - And my world is harmonies worlds. 
